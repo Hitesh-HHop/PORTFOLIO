@@ -1,2 +1,0 @@
-# PORTFOLIO
-About me
